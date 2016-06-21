@@ -7,5 +7,6 @@
 
 #### Things to do
 - Eat TACOS!
-- Visit downtown and Teatro de Gollado
+- Visit downtown and Teatro Degollado (Thanks Moises!)
 - Take a selfie in La Minerva
+- Have some fun at Metropolitan park
