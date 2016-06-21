@@ -6,3 +6,7 @@
 - Sea food
 
 ### Things to do
+
+- Beach
+- Museums
+- 
