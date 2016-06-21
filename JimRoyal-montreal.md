@@ -15,3 +15,6 @@
 
 ## Places to See
 
+- Old Montreal
+- Shopping on St-Denis
+- Île-St-Hélène and La Ronde
