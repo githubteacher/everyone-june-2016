@@ -3,7 +3,7 @@
 #### Restaurants
 - Trouble Coffee
 - Pretty Lady diner
-
+- new spot on the corner 
 
 
 #### Things to do
