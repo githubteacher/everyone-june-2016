@@ -1,3 +1,7 @@
-Restaurantjes:
+Things to do in Groningen:
 
-Frietv an Piet
+#### Restaurants
+- 't Oestertje
+
+#### Things to do
+- Climb the Martini Toren
