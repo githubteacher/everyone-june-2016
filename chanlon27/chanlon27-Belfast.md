@@ -5,3 +5,6 @@
  - The Salty Dog :dog:
  
 #### Things to do
+- Sight Seeing
+- Pubs
+- Golf

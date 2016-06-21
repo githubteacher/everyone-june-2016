@@ -7,3 +7,5 @@
 - LunchPl
 
 #### Things to do
+- See Mahabalipuram temple
+- See Marina beach

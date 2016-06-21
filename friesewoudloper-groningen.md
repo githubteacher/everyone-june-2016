@@ -5,3 +5,4 @@ Things to do in Groningen:
 
 #### Things to do
 - Climb the Martini Toren
+- Visit the Groninger Museum
