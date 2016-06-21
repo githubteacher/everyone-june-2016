@@ -1,12 +1,12 @@
 ## Oakland :heart: :trophy: :trophy::trophy::trophy::trophy:
 
 #### Restaurants
+- Trouble Coffee
+- Pretty Lady diner
+
 
 
 #### Things to do
-- visit the Pretty Lady Diner
-- visit west oakland 
+- visit west oakland
 - protect you neck
 - find a lost puppy and befriend him/her
-- visit trouble coffee
-
