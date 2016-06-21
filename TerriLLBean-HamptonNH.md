@@ -1,3 +1,3 @@
 #I live near the coast
-#And develop for IBM Watson
+#I love sushi at Shio in Portsmouth NH
 #End
