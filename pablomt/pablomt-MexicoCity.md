@@ -1,4 +1,4 @@
-## Kansas City :heart:
+## Mexico City :heart:
 
 ### Restaurants
 
