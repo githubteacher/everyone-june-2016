@@ -2,6 +2,8 @@
 
 #### Restauraunts
 * Burrito Hut :heart:
+* Dominoes Pizza.  (Because its there)
+* Thai Orchid
 
 #### Things to do
 * YMCA
