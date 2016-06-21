@@ -6,3 +6,5 @@
 - La Tequila
 
 ### Things to do
+- Vía Recreativa
+- Visit Tlaquepaque
