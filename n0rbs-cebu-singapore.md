@@ -8,3 +8,4 @@
 * Eat Filipino food
 * Visit the beach
 * Drink cheap beer
+* Tour the city
