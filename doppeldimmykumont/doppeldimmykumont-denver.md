@@ -7,6 +7,8 @@ Populist- great small plate dining
 
 Crema coffeehouse- best coffee in town, with full breakfast and lunch menu :coffee:
 
+Los Carboncitos- Best street style tacos
+
 #### Things to Do
 
 Camping! :camping:
