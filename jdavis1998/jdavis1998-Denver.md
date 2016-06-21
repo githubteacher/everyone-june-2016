@@ -5,7 +5,7 @@
 - El Tequileno
 - Yolanda's Tacos
 - Welton Street Cafe
-- Sushi Hai
+- Sushi Hai :heart:
 
 #### Things to do
 - Botanical Gardens
