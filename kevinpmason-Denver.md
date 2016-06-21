@@ -1,6 +1,6 @@
 ## Things to do in Denver when you're alive
 
-#### Restarants
+#### Restaurants
 - Bluebonnet Cafe
 - Casa Bonita
 - The Fort
