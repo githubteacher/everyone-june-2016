@@ -1,5 +1,4 @@
 ## UK
+#### Places to eat
 
-#### Restuarants
-
-Things to do.
+Time to venture for food!
