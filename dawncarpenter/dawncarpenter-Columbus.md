@@ -7,4 +7,5 @@
 
 
 #### Things to do
-
+- North Market
+- craft beer
