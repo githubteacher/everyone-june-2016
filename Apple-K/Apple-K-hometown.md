@@ -3,4 +3,8 @@
  - Browns
  - Custom House
  - Henry's Cantonese 
-###Things to Do
+
+####Things to Do
+ - surfing
+ - trekking
+ - playing golf
