@@ -6,3 +6,6 @@
 
 #### Things to do
 
+- Empire State Building
+- Statue of Liberty
+- Rockefeller Center
