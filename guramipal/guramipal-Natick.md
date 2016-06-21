@@ -9,3 +9,4 @@
 
 - Natick Mall
 - Natick common
+- Lake
