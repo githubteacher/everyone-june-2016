@@ -7,3 +7,5 @@
 - Saigon Sisters
 
 #### Things To Do
+- Millenium Park
+- Lincoln Park Zoo
